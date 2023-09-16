@@ -17,7 +17,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/RissaStack](https://github.com/RissaStack)
 
-- 💬 Ask me about **Education, Baking, Basketball, and Survivor **
+- 💬 Ask me about **Education, Baking, Basketball, Theater, Musicals, and Survivor **
 
 - 📫 How to reach me **larissastack@gmail.com**
 
